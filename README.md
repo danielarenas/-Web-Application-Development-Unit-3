@@ -13,6 +13,5 @@
                                                            DOCENTE</br>
                                                 José Manuel Hernandez Martinez</br>
                                                            EQUIPO</br>
-                                             
                                              16210783 - Castro Arenas Flavio Daniel</br>                                                                                   
 </p></b>
